@@ -1,4 +1,4 @@
-# 
+# Exclusivo Claude Code Telegram Remote Launcher extensões. Com processamento de linguagem natural e aprendizado por transferência — otimizado para máximo desempenho.
 
 
 
